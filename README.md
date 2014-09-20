@@ -1,4 +1,0 @@
-andri-septian
-=============
-
-tugas
